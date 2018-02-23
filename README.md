@@ -7,3 +7,5 @@ https://docs.google.com/forms/d/e/1FAIpQLSeAT0-0j42aVZEYjv8eJtf2ksrJ1RDQkbhrNU0i
 В общем я довольна проведённым опросом, так как мне удалось выяснить многое о привычках питания разных людей.
 
 https://vk.com/doc118448321_460672266?hash=d374c2188750e99350&dl=0f4d139cd05ff8dcd8
+
+https://docs.google.com/spreadsheets/d/1m20fZxSCy2zcychCjOB6fOCAaMGpeqNtzHgqZ4L50LM/edit#gid=881735850
