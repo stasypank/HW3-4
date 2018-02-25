@@ -6,3 +6,5 @@ https://docs.google.com/forms/d/e/1FAIpQLSeAT0-0j42aVZEYjv8eJtf2ksrJ1RDQkbhrNU0i
 
 https://vk.com/doc118448321_460672266?hash=d374c2188750e99350&dl=0f4d139cd05ff8dcd8
 https://docs.google.com/spreadsheets/d/1m20fZxSCy2zcychCjOB6fOCAaMGpeqNtzHgqZ4L50LM/edit#gid=881735850
+
+https://docs.google.com/spreadsheets/d/1m20fZxSCy2zcychCjOB6fOCAaMGpeqNtzHgqZ4L50LM/edit#gid=1607292399
